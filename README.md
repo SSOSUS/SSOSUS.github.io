@@ -1,2 +1,3 @@
-# SSOSUS.github.io
-cyborg slaves of satan
+# Cyborg Slaves of Satan
+
+### [Now recruiting](https://main.cyborgslavesofsatan.us)
